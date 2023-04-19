@@ -22,7 +22,7 @@ Crown Clown osu skins list made my me.
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098246706266656920/image.png)
 
 # [--lifeline](https://drive.google.com/file/d/1S0nMDr1BfCOlXUChKr68k0dhxVirmgng/view?usp=share_link)
-![](![image](https://cdn.discordapp.com/attachments/1097281606256955413/1098247277744767056/image.png)
+![]([image](https://cdn.discordapp.com/attachments/1097281606256955413/1098247277744767056/image.png)
 
 # [--nm tekkito_exarch + varv cursor](https://drive.google.com/file/d/1SpuuhiBh7IAPd8FRD23glBWuvp58Adr_/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098247665520750652/image.png)
