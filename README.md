@@ -1,76 +1,54 @@
-# mrekk-osu-Skins
-mrekk's osu! skins. List updated and maintained by broiiler. DM me on discord if I'm forgetting a skin broiiler#4200.
+Crown Clown osu skins list made my me.
 
-# [【Mrekk 3.0】by Flowfy](https://drive.google.com/drive/folders/1H_KeIKxLPdFMkkehJIU4C_43kth-U9wk)
-All variants included in the google drive link above.
-![](https://i.imgur.com/FoMbCzw.png)
+# [--dt skin (other options see below)](https://drive.google.com/file/d/1OXYa1PbL8nl34ViwyIODIkZbJxq_BI_v/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098243157273088120/image.png)
 
-# [Rafis but SZ](https://mega.nz/file/nldlHYBa#oEZflF9oFj2BnmV4y5O2Jgp8wDd4aqvONfO029zWd3c)
-![](https://i.imgur.com/JJzb9Jk.png)
+# [mrekk dt skin](https://drive.google.com/file/d/1eB3NilQjhnpeAKVa5fQy8-S_xqTBKm4X/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098241726050738366/image.png)
 
-# [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM)
-![](https://camo.githubusercontent.com/a5fb97edd4ab9f0c0a8f28141cbfe51f9303eb4e0754c3db2e650d3544fc9020/68747470733a2f2f6f73752e7070792e73682f73732f3131383630393836)
+# [--dt2 (vaxei 2023 sliders)](https://drive.google.com/file/d/1iHp1AffuWDohIPFWtXKX5Cuv4OcgtRZU/view?usp=sharing)
+![](![image](https://cdn.discordapp.com/attachments/1097281606256955413/1098244070159159336/image.png)
 
-# [Rafis HDDT](https://drive.google.com/uc?export=download&id=1hHzgI3DfKLLg6VxKYDPT3kYqXERDM96o)
-![](https://i.imgur.com/YULitvx.png)
+# [--dt3 white cursor](https://drive.google.com/file/d/11ddUZEvsjyRHugJ08uHYm09vGUxWY42F/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098245166625734696/image.png)
 
-# [Ryanstolefromkevin](https://mega.nz/file/0Pxx2JZQ#HKrPw2FBQQeM3OIGxhKGeToOFxFMLlYFF8O6QGTHPmk)
-![](https://i.imgur.com/HFnVQJx.png)
+# [--dt3 mint](https://drive.google.com/file/d/1fKY5qJarEpDQoKzdn__gzTGrPmKaK6uV/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098245914927304836/image.png)
 
-# [xact (maliszewski edit)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
-![](https://osu.ppy.sh/ss/17982547/d29a)
+# [--dt3 no hidden(gray approachcircle)](https://drive.google.com/file/d/1vn3360PZ_4RZJI825HsTYXfC3-bUo2CQ/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098246200580374548/image.png)
 
-# [Aristia(Edit) + mrekk](https://drive.google.com/file/d/1nZkbsWjfDXJu9-VONuZV_DiYOjteMW25/view)
-vv idke trail, and old yellow cursor in the cursor folder.
-![](https://i.imgur.com/1mVGsiY.png)
+# [--dt3 yellow](https://drive.google.com/file/d/1NC4AuiexkB3tZfHWkyIaKa3vkxikhQWu/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098246706266656920/image.png)
 
-# [《CK》 Bacon boi 1.0 『blue』](https://joofixd.s-ul.eu/Idc2Mdek)
-![](![image](https://user-images.githubusercontent.com/47702237/179339904-eb325c4a-6daa-4c77-9ada-d14b1ccb82f1.png)
+# [--lifeline](https://drive.google.com/file/d/1S0nMDr1BfCOlXUChKr68k0dhxVirmgng/view?usp=share_link)
+![](![image](https://cdn.discordapp.com/attachments/1097281606256955413/1098247277744767056/image.png)
 
-# [Monko Edit](https://rektygon.s-ul.eu/r36TbuaU)
-![](https://i.imgur.com/8tXwDP0.jpg)
+# [--nm tekkito_exarch + varv cursor](https://drive.google.com/file/d/1SpuuhiBh7IAPd8FRD23glBWuvp58Adr_/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098247665520750652/image.png)
 
-# [fierymod v8 realest ver](https://www.mediafire.com/file/4ryl6qqet0xs9nc/fierymod_v8_realest_ver.osk/file) 
-![](https://i.imgur.com/Vv4Jgr1.png)
+# [--same nm but yellow cursor](https://drive.google.com/file/d/1RtES0qWnKvIUmywzwn1IztMQd3TaJqKH/view?usp=share_link) 
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098248215972823110/image.png)
 
-# [White Cursor download link](https://drive.google.com/drive/folders/1EYv4s6YAJBmIknfP72TzSvjmUBRuc4Sh)
+# [- 《CK》 WhiteCat 2.1 ~ old-blue.osk](https://drive.google.com/file/d/1QF-sSzS2HvrNmo1qfFRDqcgSTQjQyo3R/view?usp=share_link)
 
-# [- 《CK》 WhiteCat 2.1 ~ old](https://www.mediafire.com/file/slctyhdrt8q7mhw/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old.osk/file)
-![](https://i.imgur.com/rZckbMN.png)
-# [Ponytail HDDT](https://gerwi2.s-ul.eu/UpwA6ZsP)
-![](https://i.imgur.com/o9VRoFm.png)
+# [--nm2 trailmix](https://drive.google.com/file/d/1F-sX0OQChebWfd7ldwGlH1HRbTobwJjx/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098248887371845703/image.png)
+# [--nm3 vaxei edit (followpoints, cursor, no awful meny sounds)](https://drive.google.com/file/d/1pTxkxhEsgV5veQNFIr9zBuYAWK4qk7K8/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098249263454109706/image.png)
 
-# [Dracula (old)](https://www.dropbox.com/s/n57ci29mq0ni815/dracula_final.osk?dl=1)
-![](https://skins.osuck.net/uploads/posts/2018-09/1537800520_oqggtfn.jpg)
+# [--nm4 green aristia](https://drive.google.com/file/d/1V99PGqQmNx_63OsDy5Trs2Ve_WgPx_Cj/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098249974417993839/image.png)
 
-# [Jace 6.25](https://download2062.mediafire.com/sgw45zsh33cg/r4mclu4kgr600n7/Jace+6.25.osk)
-![](https://skins.osuck.net/uploads/posts/2019-07/1563799041_3.jpg)
+# [--nm4 mint aristia](https://drive.google.com/file/d/14tWkvUAnLis04OZsU4X9HRcln9kS2fAV/view?usp=share_link)
+![]https://cdn.discordapp.com/attachments/1097281606256955413/1098250348927402085/image.png)
 
-# [Seoul v9 Personal Skin](https://shigeskinss.s-ul.eu/csrv6H29)
-![](https://i.imgur.com/RBEwdpq.png)
+# [--nm4 yellow aristia](https://drive.google.com/file/d/13yvyLxhCX02c8lnBZR_bQ6RP_95seClu/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098250785885802588/image.png)
 
-# [JTB x Kano](https://puu.sh/F13i5/33ef85de62.osk)
-![](https://osu.ppy.sh/ss/15436713/7524)
+# [- # Rem [nK].osk](https://drive.google.com/file/d/1X-QnrUT94wf__jT191otVOU0bsUitJh7/view)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098251717759475763/image.png)
 
-# [RyuK boop](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
-![](https://camo.githubusercontent.com/1baf3104e3be52fbdae1c27a8ed9b55073d0459e/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
-
-# [Aristia+ edit RyuK](https://download1642.mediafire.com/xwevs8y6vcsg/fmmuq6020lb8sda/Aristia%28Edit%29%2Btrail.osk)
-![](https://skins.osuck.net/uploads/posts/2019-07/1561975230_screenshot5519.jpg)
-
-# [404 SkinNotFound v2](https://joofixd.s-ul.eu/Ia93XGt5)
-![](https://camo.githubusercontent.com/7a0cf2b830c8f7813f190af0e00575ca13b4e5e0/68747470733a2f2f6f73752e7070792e73682f73732f31333438383938392f61373661)
-
-# [Abyssal 2018-06-15](https://osuskins.net/download/uqQipHZ)
-![](https://osuskins.net/screenshots/uqQipHZ.jpg)
-
-# [- # Mrekk 〘 1.0 〙【FY】](https://drive.google.com/uc?export=download&id=11VY0ResQ2AT-48AhAHsGyOvu9jaPGHP5)
-[- # Mrekk 〘 1.0 〙【DT】](https://drive.google.com/uc?export=download&id=1zpB8L-wE9HJbDLvDKh--g8n2QMJCDuAi)\
-[- # Mrekk 〘 1.0 〙【NM】](https://drive.google.com/uc?export=download&id=1KyfzDBexpJuncrHrVJ5ETZrH3_2IbGYy)
-![](https://skins.osuck.net/uploads/posts/2021-01/1611739146_screenshot9120.jpg)
-
-# [- # Mrekk (2.0) «FY» #](https://drive.google.com/uc?export=download&id=1YVcvs2a4_u0UgFnWbdQK9-Uj2nqTbSHW)
-[- # Mrekk (2.0) «DT» #](https://drive.google.com/uc?export=download&id=1413Gc_22h5eQ7-Tw6zF_VxHBo_O3ioFZ)\
-[- # Mrekk (2.0) «NM» #](https://drive.google.com/uc?export=download&id=1G9_uXY4cCtpKbGjt_zzrPTRY-isCuqUK)
-![](https://i.imgur.com/jydYbHP.png)
+# [Camellia](https://drive.google.com/file/d/1_RKsrBJaMBwOTwkZPRuX9hmg2SEhNQge/view?usp=share_link)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098252366232436919/image.png)
 
