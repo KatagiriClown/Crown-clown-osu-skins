@@ -34,7 +34,7 @@ Crown Clown osu skins list made my me.
 
 # [--nm2 trailmix](https://drive.google.com/file/d/1F-sX0OQChebWfd7ldwGlH1HRbTobwJjx/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098248887371845703/image.png)
-# [--nm3 vaxei edit (followpoints, cursor, no awful meny sounds)](https://drive.google.com/file/d/1pTxkxhEsgV5veQNFIr9zBuYAWK4qk7K8/view?usp=share_link)
+# [--nm3 vaxei edit (followpoints, cursor, no awful menu sounds)](https://drive.google.com/file/d/1pTxkxhEsgV5veQNFIr9zBuYAWK4qk7K8/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098249263454109706/image.png)
 
 # [--nm4 green aristia](https://drive.google.com/file/d/1V99PGqQmNx_63OsDy5Trs2Ve_WgPx_Cj/view?usp=share_link)
