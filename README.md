@@ -7,7 +7,7 @@ Crown Clown osu skins list made my me.
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098241726050738366/image.png)
 
 # [--dt2 (vaxei 2023 sliders)](https://drive.google.com/file/d/1iHp1AffuWDohIPFWtXKX5Cuv4OcgtRZU/view?usp=sharing)
-![](![image](https://cdn.discordapp.com/attachments/1097281606256955413/1098244070159159336/image.png)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098244070159159336/image.png)
 
 # [--dt3 white cursor](https://drive.google.com/file/d/11ddUZEvsjyRHugJ08uHYm09vGUxWY42F/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098245166625734696/image.png)
@@ -22,7 +22,7 @@ Crown Clown osu skins list made my me.
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098246706266656920/image.png)
 
 # [--lifeline](https://drive.google.com/file/d/1S0nMDr1BfCOlXUChKr68k0dhxVirmgng/view?usp=share_link)
-![]([image](https://cdn.discordapp.com/attachments/1097281606256955413/1098247277744767056/image.png)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098247277744767056/image.png)
 
 # [--nm tekkito_exarch + varv cursor](https://drive.google.com/file/d/1SpuuhiBh7IAPd8FRD23glBWuvp58Adr_/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098247665520750652/image.png)
