@@ -1,4 +1,4 @@
-Crown Clown osu skins list made my me.
+Crown Clown osu skins list made my [myself](https://osu.ppy.sh/users/30933245)
 
 # [--dt skin (other options see below)](https://drive.google.com/file/d/1OXYa1PbL8nl34ViwyIODIkZbJxq_BI_v/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098243157273088120/image.png)
