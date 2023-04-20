@@ -9,8 +9,8 @@ Crown Clown osu skins list made my [myself](https://osu.ppy.sh/users/30933245)
 # [--dt2 (vaxei 2023 sliders)](https://drive.google.com/file/d/1iHp1AffuWDohIPFWtXKX5Cuv4OcgtRZU/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098244070159159336/image.png)
 
-# [--dt3 white cursor](https://drive.google.com/file/d/11ddUZEvsjyRHugJ08uHYm09vGUxWY42F/view?usp=share_link)
-![](https://cdn.discordapp.com/attachments/1097281606256955413/1098245166625734696/image.png)
+# [--dt3 god-ish cursor](https://cdn.discordapp.com/attachments/855218522258538558/1098682355545276538/--dt3.osk)
+![](https://cdn.discordapp.com/attachments/1097281606256955413/1098682959072075837/image.png)
 
 # [--dt3 mint](https://drive.google.com/file/d/1fKY5qJarEpDQoKzdn__gzTGrPmKaK6uV/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098245914927304836/image.png)
