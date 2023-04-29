@@ -43,8 +43,8 @@ Crown Clown osu skins list made my [myself](https://osu.ppy.sh/users/30933245)
 # [--nm4 mint aristia](https://drive.google.com/file/d/14tWkvUAnLis04OZsU4X9HRcln9kS2fAV/view?usp=share_link)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098250348927402085/image.png)
 
-# [--nm4 yellow aristia](https://drive.google.com/file/d/13yvyLxhCX02c8lnBZR_bQ6RP_95seClu/view?usp=share_link)
-![](https://cdn.discordapp.com/attachments/1097281606256955413/1098250785885802588/image.png)
+# [--nm4 yellow aristia](https://cdn.discordapp.com/attachments/1101536563785121895/1101992599310569562/--nm4_yellow_aristia.osk)
+![](https://media.discordapp.net/attachments/1101536563785121895/1101992501126115333/image.png?width=1202&height=676)
 
 # [- # Rem [nK].osk](https://drive.google.com/file/d/1X-QnrUT94wf__jT191otVOU0bsUitJh7/view)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098251717759475763/image.png)
