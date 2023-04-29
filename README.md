@@ -49,6 +49,6 @@ Crown Clown osu skins list made my [myself](https://osu.ppy.sh/users/30933245)
 # [- # Rem [nK].osk](https://drive.google.com/file/d/1X-QnrUT94wf__jT191otVOU0bsUitJh7/view)
 ![](https://cdn.discordapp.com/attachments/1097281606256955413/1098251717759475763/image.png)
 
-# [Camellia](https://drive.google.com/file/d/1_RKsrBJaMBwOTwkZPRuX9hmg2SEhNQge/view?usp=share_link)
-![](https://cdn.discordapp.com/attachments/1097281606256955413/1098252366232436919/image.png)
+# [tekkitoshigetora](https://cdn.discordapp.com/attachments/1101536563785121895/1101993510019801159/shigetora.osk)
+![](https://cdn.discordapp.com/attachments/1101536563785121895/1101993457494532166/image.png)
 
